@@ -1,2 +1,2 @@
 # hello-world
-Just another repository
+Face reality and crack cycle.
